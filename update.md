@@ -17,9 +17,9 @@ SnapChat's cat filter, the full moon coinciding with full emotions, arriving jus
 - You are meant to move.
 
 ## #hearteyes
-- [Man on the Moon ~ Kid Cudi](https://www.youtube.com/playlist?list=PL33FE8F298F8DD4AF)
-- [This article & manifesto on radical love (h/t Pam, a FB friend)](https://bitchmedia.org/article/love-time-political-resistance/transform-valentines-day-lessons-audre-lorde-and-octavia)
-- [Chasing Utopia ~ Nikki Giovanni](https://www.amazon.com/Chasing-Utopia-Hybrid-Nikki-Giovanni/dp/0062562886)
+- 🎵 [Man on the Moon ~ Kid Cudi](https://www.youtube.com/playlist?list=PL33FE8F298F8DD4AF)
+- 💻 [Bruce Lee's In My Own Process](https://www.brainpickings.org/2017/02/22/in-my-own-process-bruce-lee/) via the wonderful [Brain Pickings](https://www.brainpickings.org)
+- 👀 [Chasing Utopia ~ Nikki Giovanni](https://www.amazon.com/Chasing-Utopia-Hybrid-Nikki-Giovanni/dp/0062562886)
     - especially the two poems:
         - It's Just Love
         - Before You Jump Off A Bridge or Hang Yourself or Be Unhappy Please Consider: Live for yourself; Those Who Hate You Have No Purchase
