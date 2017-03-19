@@ -35,5 +35,5 @@ Not fear, not fear, not fear; but rather your hopes and wants, your abilities an
 
 ## #hearteyes
 - 🎵 [There's So Much Energy in Us ~ Cloud Cult](https://www.youtube.com/watch?v=udWIFQgAcYQ)
-- 💻 [Pole vaulting on Jupiter ~ Seth Godin](http://sethgodin.typepad.com/seths_blog/2017/02/pole-vaulting-on-jupiter.html)
+- 💻 [Buzzfeed's treatyoselfsunday](https://www.buzzfeed.com/tag/treatyoselfsunday)
 - 👀 [What to do when your life falls apart](https://www.youtube.com/watch?v=rqnUEj8tA14)
