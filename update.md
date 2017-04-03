@@ -27,11 +27,12 @@ Now what?
 
 
 ## miscellaneous
-Not fear, not fear, not fear; but rather your hopes and wants, your abilities and talents. Your voice, shaky, but there and loud and expressive. Pain isn't bad. Pain isn't bad. It sucks to be alone, but it sucks way fucking worse to think your loneliness isn't a place to love yourself. It sucks worse to not make the call, to not let down your walls, to not be heart-breakingly honest.
+Career advice from your lyft driver: trust the timing of your life, trust yourself. A gold fly on the wall. Confusion as preperation for receptiveness. A note from a stranger with a quiet voice, acknowledgement. Trying to patch the future by reviving the past. How we select the stories we let define us, and if you change those, will you be a whole new person? Give everything and fail. Give everything and fail. You regret what you don't do. These are getting too cliche. The blue condom wrapper on the steps. The raccoon with its arched back blocking my way. The sticker you have to stare at before seeing the eye staring back at you. The city behind it. The distance you know you need to create. Turning the car around to chase the coyote through the neighborhood into the park. It's cute how you fall asleep in the car. I like it, too.
 
 ## epiphanies
-- Having a dishwasher doesn't make up for not having discipline.
 - Happiness is living your life 1) intentionally 2) by your values.
+- It's okay to fuck up, but you have to 1) own up 2) take action to make things right.
+- Have gratitude for yourself.
 
 ## #hearteyes
 - 🎵 [There's So Much Energy in Us ~ Cloud Cult](https://www.youtube.com/watch?v=udWIFQgAcYQ)
