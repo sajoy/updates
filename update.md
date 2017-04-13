@@ -1,40 +1,19 @@
 ## prose
-So. I've been thinking about values. I followed along with an exercise a few months ago and narrowed them down to five things:
-1. Creativity 💡
-1. Growth 🐛
-1. Curiosity 🔮
-1. Community 💪
-1. Balance 💞
+Tonight my Lyft driver told me she likes driving for Lyft because of the variety of people she gets to meet. She told me she realized that even though everyone is unique and different, there's something similar we all share. I didn't ask her what that something was-we'd quickly moved on to a new topic-but these are some things I think we have in common:
+- the desire to know and understand
+- the desire to express and connect
+- the tendency to forget how complex people are, especially those we cherish
+- the tendency to believe our thoughts and reactions instead of questioning them
+- the capacity to grow
 
-Before that (I don't remember how long ago), I thought about my "why":
-> WHY: to celebrate life through curiosity and help other people cultivate their creativity
-
-and also, a corresponding "what" and "how":
-> WHAT/HOW: be curious & creative, create art, teach others how to create and that they are creative, share interesting lessons and learning opportunities
-
-These past few weeks have been rough, for personal reasons. But because of that, I've spent a lot of time (way too much time) reflecting on myself and my life. And I revisited my values and narrowed them down to three:
-1. Create 💡
-1. Grow 🐛
-1. Seek Balance 💞
-
-These are the things I keep coming back to. Not so much creativity and whatever that word means, but literally the act of creating. Growing through self-reflection, through reading, because there is so much still to learn. Seeking balance because I think that's one of my biggest philosophies in life: balance in all things. For every good thing, there is something not good. For every up there is a down - you might not be the one who experiences both, but somewhere in the universe, there is something balancing out the energy in your life.
-
-My values have also shifted into verbs, because I've realized living without intention isn't what I want. For the past couple of years, hell, possibly for all of my life, I've taken so much for granted. Mistakenly thinking that these things will be there tomorrow, or the chance to get them back in my life would always be there. And while that second part might be  true - it's not a reason to not enjoy what's in your life while you have it.
-
-I'm tired of thinking. I'm itching to act. To get to the what and how of my why. To make decisions and choices intentionally pursuing my values and my ultimate goal in life: amazing, inspiring laugh lines (and also growing, creating, seeking balance and celebrating life and helping people cultivate their creativity).
-
-Now what?
-
+I desire to know and understand why people act the way they do, believe the things they believe, and want the things they want. I want to know how the world works, even if I could never fully understand. I desire to express my confusion, admiration, awe of the mundane and the interesting. I want to express happiness, sadness, frustration. I want to connect to that place in you that has no words, only movement, only an eruption of tears. I forget, constantly, that my husband's, mother's, father's, friend's day extends way past my consideration of it. I forget about all the strangers surrounding me and their spinning worlds. I believe my thoughts when they tell me I'm angry or hurt when really I'm scared. I neglect to question how I interpret the tension in my shoulders, the concentration of energy pushing in instead of flowing out. I look in the mirror and wonder how it's been seven years since x, three years since y, seventeen years since tiny me sat in a tree crawling with ants and covered in flecks of sunlight.
 
 ## miscellaneous
-Career advice from your lyft driver: trust the timing of your life, trust yourself. A gold fly on the wall. Confusion as preperation for receptiveness. A note from a stranger with a quiet voice, acknowledgement. Trying to patch the future by reviving the past. How we select the stories we let define us, and if you change those, will you be a whole new person? Give everything and fail. Give everything and fail. You regret what you don't do. These are getting too cliche. The blue condom wrapper on the steps. The raccoon with its arched back blocking my way. The sticker you have to stare at before seeing the eye staring back at you. The city behind it. The distance you know you need to create. Turning the car around to chase the coyote through the neighborhood into the park. It's cute how you fall asleep in the car. I like it, too.
+A fluffy, gray sky; a mirror river; a connect the dots spread of orange, yellow, white lights. White paint splatters decorating the top step of a ladder. A downpour right outside the window. Three tall, lanky men with long brown hair. A train car with a different seating layout. A forgotten phone charger. China plates with sticker scenes: sharks with sports gear, a cat at a dog's birthday party, pizza.
 
 ## epiphanies
-- Happiness is living your life 1) intentionally 2) by your values.
-- It's okay to fuck up, but you have to 1) own up 2) take action to make things right.
-- Have gratitude for yourself.
+- You're not ready. Do it anyways.
 
 ## #hearteyes
-- 🎵 [There's So Much Energy in Us ~ Cloud Cult](https://www.youtube.com/watch?v=udWIFQgAcYQ)
-- 💻 [Buzzfeed's treatyoselfsunday](https://www.buzzfeed.com/tag/treatyoselfsunday)
-- 👀 [What to do when your life falls apart](https://www.youtube.com/watch?v=rqnUEj8tA14)
+- 💻 [Where Does Confidence Come From?](http://jkglei.com/where-does-confidence-come-from/?utm_content=buffer0327d&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
+- 👀 ["Hold Me"](https://www.youtube.com/watch?v=_vLMtcqWA28)
