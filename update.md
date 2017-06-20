@@ -1,24 +1,21 @@
 ## prose
-Growing up you learn to associate the word "tree" with that towering entity of fluttering green and scratchy brown. Your brain repeats the pair over and over again until you stop asking the people around you: but why is that tree small? why does that tree have orange leaves? why does that tree have none?
+*The blurry river*
 
-In less than a century, we've made smaller and smaller transistors (a transistor amplifies or switches eletronic signals - gives us a sense of control). We went from an integrated circuit having a few thousand transistors to having over 7 billion, allowing us to make computers smaller, faster, better.
+The one thing I tell people I miss about my hometown: the Rappahannock River. Its perfect depth for wading and swimming. Its dangerous reputation. The view of it from the bridge home. Three thousand miles from home, brown water is flowing over the skin of strangers. Three thousand miles from home is the memory of sitting on a rock, absorbing sun, sticking leaves on our foreheads, silly and strange enough.
 
-Growing up you learn to associate the word "love" with that towering entity of fluttering lashes and flushing cheeks. Your brain repeats the pair over and over again until you stop asking the people around you: but why do they hold hands? why do they have a look of longing in their eyes? why do they say those words as if they were salve.
+*The mad ocean*
 
-See, associate, create a path, let the energy through, repeat. See, associate, create a path, let the energy through, repeat. See, associate, create a path, let the energy through, repeat. See, see, see. Associate. Create a path, create a new path, run down that path with a leaf blower, walk slowly down the path as if walking in a snowy forest. Let your energy through. Let your energy out. Repeat.
+I lie back and close my eyes and reopen them and see a gray sky as blue. I hear the ocean crash into itself. I hear a seagull ask for friendship. One hundred miles from home. My blanket is red and there is a little black speck floating around my right eye. When I stare too long at the blue gray clouded sky it starts to rotate like a kaleidoscope.
 
-In less than a century, we've made habit of turning sand into silicon into microchips into data. We've made habit of seeking energy from the electricity of microchips instead of the sparks created when we forge a new path from this unfamiliar territory to this new understanding.
+*The dead fountain*
 
-Growing up you learn to associate the word "fear" with that towering entity of shadow and that empty feeling of loss. Your brain repeats the pair over and over again until you stop asking the people around you: but will it hurt? but is pain bad? but can I endure?
-
-Let the energy through. See the path. Associate. Repeat.
+A mile away from home, a garden of roses surrounds a stilled fountain. Above, a gazebo of couples dancing. The bottom of the fountain is visible, concrete, unhappy. The water is stagnant until a Dachshund and its owner disobey the posted rule and wade around. Even the bright blue sky's reflection is dimmed by the gray water, gray concrete. Pinks and reds and whites and greens and purples and oranges and yellows swirl around it: roses in bloom, rose petals fallen to the ground, grass, leaves, thorns.
 
 ## miscellaneous
-A fluffy, gray sky; a mirror river; a connect the dots spread of orange, yellow, white lights. White paint splatters decorating the top step of a ladder. A downpour right outside the window. Three tall, lanky men with long brown hair. A train car with a different seating layout. A forgotten phone charger. China plates with sticker scenes: sharks with sports gear, a cat at a dog's birthday party, pizza.
+Pink roses with pinked petals; pink starbursts; the printed sign behind the cash register: we encourage random dancing; a promise to love etched into the pier; a promise of existence scratched into dark sand; hoof prints racing down the hill; a deer leaping over the wire fence between humans and cliff; a rainbow paraglider; a man running in the sand; a man running with a box of leis in hand; a thank you for not shaving; "hang tight".
 
 ## epiphanies
-- You're not ready. Do it anyways.
-- Work takes time.
+- Enjoy being.
 
 ## #hearteyes
 - 💻 [Where Does Confidence Come From?](http://jkglei.com/where-does-confidence-come-from/?utm_content=buffer0327d&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
