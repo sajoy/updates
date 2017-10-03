@@ -1,25 +1,20 @@
 ## prose
+I didn't learn how to chop up a whole chicken, despite my mother telling me "and then, Saj, you cut here," her voice followed by the sound of bone cracking. Instead I'm contemplating the skin and structure of the carcass. The pink hues, the rippled texture, the similiarity in makeup to myself. Ribs. Neck. Breasts. Muscle. I help make our dinner by sautéing the ginger, onions, and tomatoes; turning down the heat, adding in the bloody chicken meat; watching the sizzling turn to steam, watching the pink skin turn speckled golden brown; drowning the ingredients in tap water; turning the exhaust fan to its highest setting.
 
-There's a hole in the floor. This has happened before. You, buying a used vehicle, with a hole in the floor. I'm in the passenger seat, like usual. Only this time, I'm not the only woman you love. You used to tell me you thought no one else could love someone as gross as you. I always told you otherwise. Now, she rides shotgun with you occasionally, hope nestled in her heart that yours is tied only to hers. 
+I used to dislike cooking. I used to think it was a waste of time: nearly an hour cutting up food, cooking it in a pot, letting it cool before ever getting to consume anything, then consuming it in less than half the amount of time it took to create it. Not worth it. Not worth spending the energy stored in my brown flesh, pink tinged palms, bored muscles. But there was something else driving my dislike: I didn't know what I was doing. 
 
-We're driving to the Waste Transfer Station, not a dump, because this is a city, not the suburban or rural space we grew up in. Your window won't roll up all the way. Later, after we return to the apartment, you'll realize your door won't latch properly anymore either. I'll wonder if you have an affinity for broken things because you think you're broken, too. 
+I asked my mom if she learned how to do this (take a bird apart with a knife) from Lola. She said no. Eventually, she remembered how she learned: a cooking show starring a Chinese man. She watched it when she first moved to the states.
 
-The Waste Transfer Station is a warehouse with bay doors for cars and trucks to enter. It's like a drive-thru for dumping your garbage instead of buying it. We toss our mattress, folded in half and tied with tie-line. We toss the oversize pallets our moldy mattress sat on. We toss the bags of kitchen garbage that never made it to the curb.
+I didn't learn how to chop up a whole chicken, despite my mother telling me. I did learn why people cook together. It's the process of creating, just like creating art or music or whatever, but condensed into a short time and intensified by the proximity to ingredients that tease the senses. The sight of a fleshy body being separated by shiny, sharp silver. The sound of body breaking. The feeling of heat from the stove. The billowing steam. The visual transformation from full, red tomato flesh to orange transluscentness.
 
-The week leading up to your trip, you help her paint her bathoom. You play tennis with her cute little cousins. You spend time with her instead of packing your things. Instead of preparing your van that you'll live in for a month.
-
-A few weeks after you leave, I deep clean the apartment, discover all the dents and scratches we left on the floors and doors and walls. I buy a Swiffer; scrub the painted concrete floor; scrub the bathtub; wipe down the front door dirtied with fingerprints; wipe the inside of the fridge as two guys from 1-800-GOT-JUNK haul out my old armchair, a pile of recycling, and a dozen bags of trash.
-
-A few weeks after you leave, I spray water onto the concrete wall outside our front door, use a bright yellow microfiber towel to wipe away the chalk message I left for you. An attempt to make you see, to confront you, to overwhelm you, to remind you of the time you felt so much for me you couldn't sleep, and instead drove to my house in the middle of the night to leave me your thoughts scrawled in words that got smaller and smaller as you ran out of room.
-
+Cooking is sometimes solely for the nourishment of our desperate-for-energy-body-parts. Other times, cooking is for providing energy and refreshment to our tired souls.
 
 ## miscellaneous
-A wall of lotus blossoms, painted white on black, clothes-pinned to string; a beach turned whimsical playground - smooth gray stones under a jungle gym of white fallen tree trunks; a slug slow morning; a week of sleepless nights; opening a book of letters to the most relevant one, questioning how to accept a sad, sad truth; the moon light on the water behind you, the sunset coloring the water behind me; a new denim dress; a growing pile of donations; an echoing bedroom; alligator bites, a foil seahorse, a foil fox, a foil mouse; an archived conversation; a too romantic suggestion; a craving for breadsticks; a craving to be touched. 
+Again, the thought of how another animal's skeleton resembles my own. The thought of ribs curving in protection of our fragile hearts. How heartbreak is a "psychoemotional growth-spurt". A clean swept entry way. The way she reads words out loud as she passes them by, internalizing her experience and including you at the same time. Brown shoes with khaki pants and a black shirt. "I should probably go home." Messages of pain and healing from seven years ago. 
 
 ## epiphanies
-- You get better sleep alone.
-- Even with a better fitting bike, you have to pedal to go fast.
+- "Forgiveness is an act of consciousnes."
 
 ## #hearteyes
-- 🎵 [Passionfruit ~ Paramore (Drake Cover)](https://www.youtube.com/watch?v=zqoj_3r9oqg)
-- 👀 ["Hold Me"](https://www.youtube.com/watch?v=_vLMtcqWA28)
+- 🎵 [I Feel Love ~ Donna Summer](https://www.youtube.com/watch?v=g0tenPCmHFk)
+- 👀 [David Whyte on the True Meaning of Friendship, Love, and Heartbreak ~ Brain Pickings](https://www.brainpickings.org/2015/04/29/david-whyte-consolations-words/)
