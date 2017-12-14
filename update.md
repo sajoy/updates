@@ -10,10 +10,12 @@ I didn't learn how to chop up a whole chicken, despite my mother telling me. I d
 Cooking is sometimes solely for the nourishment of our desperate-for-energy-body-parts. Other times, cooking is for providing energy and refreshment to our tired souls.
 
 ## miscellaneous
-Again, the thought of how another animal's skeleton resembles my own. The thought of ribs curving in protection of our fragile hearts. How heartbreak is a "psychoemotional growth-spurt". A clean swept entry way. The way she reads words out loud as she passes them by, internalizing her experience and including you at the same time. Brown shoes with khaki pants and a black shirt. "I should probably go home." Messages of pain and healing from seven years ago. 
+A cardboard box filled with gifts wrapped in red and gold, giant bows and ribbons raining glitter onto the floor. Swooning over the sounds of an alto saxaphone. A twenty dollar glass of Japanese whiskey. Spinning inside a tunnel of rainbow Christmas lights. A fizzy pink drink accidentally alcohol free. A shitty poem written in code. A growing collection of cropped sweaters. The sun, bright but cool, on your face as you cross the river each morning for a week. 
+
 
 ## epiphanies
-- "Forgiveness is an act of consciousnes."
+- Ask to be heard. Ask if someone feels heard.
+- Everything is an attempt to connect. 
 
 ## #hearteyes
 - 🎵 [I Feel Love ~ Donna Summer](https://www.youtube.com/watch?v=g0tenPCmHFk)
