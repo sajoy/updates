@@ -1,18 +1,16 @@
 ## prose
-At the mineral musuem there is a dark room with a display of rocks behind a glass window. The only lights are in the display. They switch between regular light and black light. In the light we're used to, the minerals look as you'd expect: shiny flecks, a range of colors from dirt brown to gray-purple to light tan to baby pink to weird pastel green. With the black light, the rocks reveal their incredible neon colors. The earthy tones are replaced with bright oranges, blues, greens, and a beautifully intense yellow.
+My identity expressed as posessions: a DIY-ed button turned magnet with Regina Spektor lyrics ("aching to pupate") and a butterfly sticker; a swivel armchair with a pink, purple, green oversized floral pattern; a silver cuff bracelet with the text "LOVE YOURSELF"; a silver charm bracelet with symbols from various religions; a royal blue cell phone and bluetooth speaker and wallet and dress; gray flannel bed sheets; a collection of books with yellow on their covers; hand-sewn floral print pillow cases; a photo taped to the window with the picture facing out and words written on the back, "set up a life you don't need to escape from"; 
 
-On the dance floor, colorful lights swoop around the floor and up the walls, passing over the people moving their bodies to the music. With the lights on, they communicate with their voices, asking for time or attention or instructions. With the lights off, they use their bodies to tell their stories. The cliché ones about healing broken hearts, the eerie ones about getting lost and never found, the gut twisting ones about betrayal, the heart warming ones about learning how to cook, the ones you want to hear over and over and over again, the ones you feel you weren't meant to hear.
+My identity expressed as arrangement of and proximity between posessions: aprons hanging on a hook near but not right next to the stove; full-length mirrors to the left of the closet; trash cans underneath the sinks; tools (measuring tape, screwdrivers, hooks, extra lightbulbs) in the bottom drawer of the craft storage; unused magnet poetry words arranged alphabetically on the fridge door; hanging clothes in a repeated pattern (black, gray, browns and neutrals, purple, blue, green, yellow, orange, red, pink); a desk hutch at the foot of the bed;
 
-By the fire at the house party, it's the smoke and the orange glow that transforms the people gathered around it. Transforms them from humans into planets: revolving around the hot flames and rotating around their own molten centers. We spin, letting our neighbors glance our haphazard patterns, our geography slowly shifting with time. In the daylight, we appear to be covered with cloth, but in the warm darkness, the cloth is revealed to be clouds and beneath them-our oceans hum, our mountains call to be explored, our minerals start to glow.
+My identity expressed as forgotten bookmarks in my browser: "The Coming Software Apocolypse", "define stability", "Do Good Grades Predict Success?", "PostSecret", "I Don't Know What To Do With My Life!", "Akazukin Cha Cha episode 2 English Sub", "Taking imagination seriously", "Cut Out + Keep", "APIs Are Not Web Pages", "How Anthony Bourdain Slays His Lazy Inner Hippie Every Morning", "6 Destructive Ideas Perpetuated in Western Culture", "The Complete Guide to Building Your Personal Brand", "Making Art with Code with Emily Xie", "Creating a Weekly Research Cadence";
 
 ## miscellaneous
-A cardboard box filled with gifts wrapped in red and gold, giant bows and ribbons raining glitter onto the floor. Swooning over the sounds of an alto saxaphone. A twenty dollar glass of Japanese whiskey. Spinning inside a tunnel of rainbow Christmas lights. A fizzy pink drink accidentally alcohol free. A shitty poem written in code. A growing collection of cropped sweaters. The sun, bright but cool, on your face as you cross the river each morning for a week. 
-
+A conversation about memory at Wendy's. A conversation about compatibility while walking around QFC. A serendipitous conversation in preparation for a shocking one. A conversation on the way to the rose garden. A conversation with lighting and a backdrop. Fallen flowers, pink like crayons, folded like crepes. A beach, sideways rain, leading to a gallery of waves. 
 
 ## epiphanies
-- Ask to be heard. Ask if someone feels heard.
-- Everything is an attempt to connect. 
+- There's a (complicated, fallible, ever-evolving) human on the other side.
 
 ## #hearteyes
-- 👀 [dwitter.net - 140 chars of JavaScript](https://www.dwitter.net/)
+- 👀 [Snoop: What Your Stuff Says About You ~ Sam Gosling ](https://www.amazon.com/Snoop-What-Your-Stuff-About/dp/0465013821)
 - 🎵 [Stars](https://open.spotify.com/user/1243409544/playlist/3j6bVF3ysHrCTSK94fiAnw?si=8dBZPMCEQSafj9_lVZ963Q)
